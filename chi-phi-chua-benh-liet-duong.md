@@ -1,3 +1,4 @@
+Thông tin về <a href="http://phongkhamdaidong.vn/chi-phi-chua-benh-liet-duong-gia-bao-nhieu-tien-2017-24.html">chi phí chữa bệnh liệt dương</a>
 Bệnh nhân mà bị chứng liệt dương chẳng phải giống như người lính ra chiến trường mà bỏ quên súng. Thế bắt buộc cảm giác lo sợ là điều hiển nhiên. Thực ra thì những anh có súng mà không mang được, vậy còn đau khổ gấp bội, cũng như tác hại là …
 Liệt dương có những ảnh hưởng là
 
@@ -25,3 +26,5 @@ bệnh này thực sự mang lại rất nhiều áp lực cho người đàn ô
 
 
 Đối với nam giới thì chẳng thể xem thường những hậu quả mà liệt dương mang lại. lúc có triệu chứng căn bệnh các anh cần đi khám ngay cũng như chữa nhanh chóng. Nhờ thế có khả năng nhanh chóng lấy lại phong độ như xưa.
+
+Nguồn bài viết: <a href="http://phongkhamdaidong.vn/chi-phi-chua-benh-liet-duong-gia-bao-nhieu-tien-2017-24.html">chi phí điều trị liệt dương</a>
